@@ -10,4 +10,4 @@
 
 ### Universidad del Norte
 
-### Octubre 2024
+### Noviembre 2024
